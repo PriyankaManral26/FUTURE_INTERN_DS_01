@@ -63,4 +63,4 @@ Some key insights from the dashboard:
 ## 👩‍💻 Author
 Priyanka Manral
 📧 [priyankamanral68@gmail.com].  
-🔗 [LinkedIn](www.linkedin.com/in/priyankamanral26)  
+🔗 [LinkedIn](https://www.linkedin.com/in/priyankamanral26)  
